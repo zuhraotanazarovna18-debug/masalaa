@@ -1,0 +1,2 @@
+# masalaa
+masalalar yechimi
